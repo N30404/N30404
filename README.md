@@ -1,4 +1,4 @@
-## Oiee! Eu sou o Christopher Chanquet 🦋
+## Oiee! Eu sou o Christopher Chanquet ✨
 
  <picture>
   <source
